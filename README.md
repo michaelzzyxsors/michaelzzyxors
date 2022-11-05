@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @michaelzzysxors
+- 👋 Hi, I’m @michaelzzyxsors
 - 👀 I’m interested in tech, spirituality, sci-fi, DYI
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on nothing, really.
